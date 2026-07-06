@@ -1,4 +1,4 @@
-
+Enhance your Golden Frog VyprVPN experience with exclusive Golden Frog VyprVPN Connector | IP-masking + L2TP-support, the #1 connector. Includes IP-masking and L2TP-support for a
 
 
 
